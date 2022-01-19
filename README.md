@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @IceMil
+- 👀 I’m interested in anything
+- 🌱 I’m currently learning how to use this
+- 💞️ I’m looking to collaborate on nothing rn?
